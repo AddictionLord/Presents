@@ -13,6 +13,7 @@ This you can buy me for Xmas, B-day and so on
 * **Sportovní trenky** - nejlíp z funkčního materiálu, velikost normálních trenek mám XL
 * **Funkční tričko** - na hory, běhání, běžky atd.. dlouhý rukáv, uplé, nikdy jich není dost
 * **Funkční ponožky** - Velikost 43-46. Nikdy jich není dost.
+* **Fridex** - Potřebuju oranžovej na VW Polo, benzin (Pokud si ho dřív nekoupím sám, ale spíš ne :D)
 
 * **Knížky:**
 	1.  [**Head First Design Patterns**](https://www.megaknihy.cz/programovani/2769671-head-first-design-patterns.html?matchtype=&network=x&device=c&creative=&keyword=&placement=&param1=&param2=&adposition=&campaignid=18255125903&adgroupid=&feeditemid=&targetid=&loc_physical_ms=9062809&loc_interest_ms=&searchtype=) (tohle si můžu koupit z firemního budgetu na vzdělávání, takže jen pokud jste hodně zoufalí)
