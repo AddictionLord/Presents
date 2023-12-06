@@ -1,6 +1,6 @@
 # Presents
 
-* **Outdoor bunda** - něco co hned nepromokne/neprofoukne (tohle by chtělo konzultaci)
+* **Outdoor bunda Montane** - Tu stejnou, kterou už mám, ale v černé barvě. Velikost Large. Taťka ví přesnej model, není to na té bundě nikde napsaný. 
 * **Barevný led pásek** do pokoje (nalepovací, s ovladačem na přepínání barviček, hlavně tam musí být červená).
 * **Břity** na holící strojek Phillips OneBlade.
 * **Monitor** - Ethernet vstup (klasika RJ-45 konektor), USB a USB-C vstupy, nejlíp, aby se z něj dal napájet notebook, tohle bude asi dražší položka, zkusím přihodit link na nějakej konkrétní časem (pokud by mi ho někdo moc přál, napište mi :D)
@@ -11,7 +11,9 @@
 * **Funkční tričko** - na hory, běhání, běžky atd.. dlouhý rukáv, uplé, nikdy jich není dost
 * **Funkční ponožky** - Velikost 43-46. Nikdy jich není dost.
 * **Nazouváky** - Adidas/Nike, tmavě modré s bílým logem do práce i na byt (dvoje), mega se hodí. Číslo cca 46.
-
+* **Ultralight powerbanka** - Na hory/traily (taťka dokáže poradit).
+* **Malinká ultralight čelovka** - Na hory/traily (taťka dokáže poradit).
+* **Koberec do pokoje** - Nějakej menší/středně velký koberec do pokoje.
 
 
 * **Knížky:**
