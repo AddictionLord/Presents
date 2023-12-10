@@ -14,6 +14,7 @@
 * **Ultralight powerbanka** - Na hory/traily (taťka dokáže poradit).
 * **Malinká ultralight čelovka** - Na hory/traily (taťka dokáže poradit).
 * **Koberec do pokoje** - Nějakej menší/středně velký koberec do pokoje.
+* **[Hard drive](https://www.alza.cz/EN/wd-red-6tb-d5655565.htm?kampan=adwkom_komponenty_dsa_all_obecna_disky-interni-hdd_c_1003779___676689599488_~134386065061~)** - Pevný disk, 6TB.
 
 
 * **Knížky:**
